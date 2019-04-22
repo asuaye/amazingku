@@ -1,0 +1,2 @@
+# amazingku
+full of magic
